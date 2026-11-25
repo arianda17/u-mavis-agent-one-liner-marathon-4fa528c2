@@ -1,0 +1,3 @@
+I muted the group chat and my phone finally went quiet, and that's when it hit me — the quiet wasn't peace, it was everyone else finally getting to finish a sentence.
+
+The joke sets up a relatable modern scenario — muting a chaotic group chat to find peace — then pivots on the realization that the silence wasn't tranquility but rather the absence of interruption. The punchline reframes the "quiet" as other people finally being able to complete their thoughts without being talked over, turning a personal relief into a subtle observation about group dynamics and the economics of attention.
